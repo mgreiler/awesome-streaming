@@ -11,4 +11,4 @@
 
 
 ## Set-up a YouTube studio
-- [Great guide to set-up a professional but budget-friendly studio](https://www.youtube.com/watch?v=WedG8LKO6ks&ab_channel=DSLRVideoShooter)
+- [Great guide to set-up a professional but budget-friendly studio ON ONE DESK](https://www.youtube.com/watch?v=WedG8LKO6ks&ab_channel=DSLRVideoShooter)
