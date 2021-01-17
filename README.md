@@ -12,3 +12,4 @@
 
 ## Set-up a YouTube studio
 - [Great guide to set-up a professional but budget-friendly studio ON ONE DESK](https://www.youtube.com/watch?v=WedG8LKO6ks&ab_channel=DSLRVideoShooter)
+- [In detail video about lighting, background, camera settings with simple set-up](https://youtu.be/TAw-xGSd83I)
